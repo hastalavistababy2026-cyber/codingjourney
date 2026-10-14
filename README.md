@@ -1,0 +1,2 @@
+# codingjourney
+preparingpurpose
